@@ -6,3 +6,6 @@ dore kelash ghermezy
 hachiin o vachiin
 
 ye pat ro varchin
+
+----------------------
+Ye cow daram amghezy
